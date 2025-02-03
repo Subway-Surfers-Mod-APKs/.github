@@ -1,4 +1,4 @@
-# Subway Surfers Mod APK 3.41.0 (Unlimited Coins & Keys) - New Version 2025
+# Subway Surfers Mod APK 3.41.0 – Unlimited Keys | New 2025 Version
 
 **Subway Surfers Mod APK 3.41.0** takes the world’s favorite endless runner game to the next level. With enhanced features, unlimited resources, and a seamless gaming experience, this 2025 version offers more excitement than ever before. Here's a comprehensive guide to everything you need to know about this must-have modded APK.
 <h1>
@@ -7,6 +7,8 @@
   </a>
 </h1>
 Subway Surfers Mod APK 3.41.0 is an incredible way to enjoy the game like never before. With unlimited resources, exclusive content, and improved graphics, this modded version is perfect for casual and hardcore gamers alike. Download it today and start your Subway Surfers journey with unlimited coins, keys, and endless fun!
+
+![Image](https://github.com/user-attachments/assets/a7d825d1-e322-405b-a049-f010c611b4a1)
 
 This version of Subway Surfers is packed with incredible features designed to keep players entertained for hours. 
 | **Feature**             | **Details**                                                                 |
