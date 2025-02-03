@@ -8,8 +8,6 @@
 </h1>
 Subway Surfers Mod APK 3.41.0 is an incredible way to enjoy the game like never before. With unlimited resources, exclusive content, and improved graphics, this modded version is perfect for casual and hardcore gamers alike. Download it today and start your Subway Surfers journey with unlimited coins, keys, and endless fun!
 
-![Image](https://github.com/user-attachments/assets/107fc274-c397-4051-9d82-71cedbbf742c)
-
 This version of Subway Surfers is packed with incredible features designed to keep players entertained for hours. 
 | **Feature**             | **Details**                                                                 |
 |-------------------------|---------------------------------------------------------------------------|
